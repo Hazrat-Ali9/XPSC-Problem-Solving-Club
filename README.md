@@ -2,4 +2,4 @@
 
 # Software Engineer || MERN & Python Developer 
 
-# XPSC Problem Solving  
+# XPSC Problem Solving Club
