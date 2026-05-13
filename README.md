@@ -1,6 +1,6 @@
 # Hazrat Ali 
 
-# Software Engineer || MERN & Python Developer 
+# CEO & Founder HMSoftTecH 
 
 # XPSC Problem Solving Club 
 
