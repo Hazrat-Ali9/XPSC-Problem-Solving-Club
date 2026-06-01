@@ -4,4 +4,4 @@
 
 # XPSC Problem Solving Club 
 
-# Problem Solving at PHITRON
+# Problem Solving at Phitron
