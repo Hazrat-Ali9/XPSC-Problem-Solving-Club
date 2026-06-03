@@ -1,7 +1,7 @@
-# Hazrat Ali 
+# 🧵 Hazrat Ali 
 
-# CEO & Founder HMSoftTecH Innovation
+# 🕯 CEO & Founder HMSoftTecH Innovation
 
-# XPSC Problem Solving Club 
+# 🧸 XPSC Problem Solving Club 
 
-# Problem Solving at Phitron
+# 🔋 Problem Solving at Phitron
