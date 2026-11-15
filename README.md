@@ -1,6 +1,6 @@
 # 🧵 Hazrat Ali 
 
-# 🤠 CEO & Founder HMSoftTecH nnovation
+# 🤠 CEO & Founder HMSoftTecH Innovation
 
 # 🧸 XPSC Problem Solving Club 
 
